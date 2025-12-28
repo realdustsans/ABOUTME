@@ -10,6 +10,8 @@ dont interact with me if you're problematic, under 12, or over 20. (unless I kno
 
 dont copy my skins 
 
+i follow people i think are cooolll.... also shoutout to my awesome friends hi
+
 i don't like talking that much and i am NOT a converstaion starter 
 
 ok thats basically all u need to know about me ok bye ok
