@@ -14,6 +14,6 @@ i follow people i think are cooolll.... also shoutout to my awesome friends
 
 im a VERY shy talker to people i dont know, once i'm comfortable enough i'll talk more ^^ 
 
-any flirting i do is strictly platonic as i am already taken
+any flirting i do is strictly platonic as i am already taken. i am poly but i am currently NOT seeking for a relationship.
 
 ok thats basically all u need to know about me ok bye ok
