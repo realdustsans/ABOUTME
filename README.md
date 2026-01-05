@@ -4,14 +4,16 @@
 
 hii you can call me zombi or murder.. i dont really care what u call me lmao! im a dust sans fictkin! ask 4 sys.. 
 
-i am offtab all the time cuz i have nobody to talk 2 lmao, please whisper to int! I really don't care who c + h with me, I just like sitting with people.
+I'm offtab almost all the time lol, just w2i if you aren't one of my friends. anyone c+h unless im with someone alreaddy
 
 dont interact with me if you're problematic, under 12, or over 20. (unless I know u already)
 
 dont copy my skins 
 
-i follow people i think are cooolll.... also shoutout to my awesome friends hi
+i follow people i think are cooolll.... also shoutout to my awesome friends 
 
-i don't like talking that much and i am NOT a converstaion starter 
+im a VERY shy talker to people i dont know, once i'm comfortable enough i'll talk more ^^ 
+
+any flirting i do is strictly platonic as i am already taken
 
 ok thats basically all u need to know about me ok bye ok
