@@ -4,7 +4,7 @@
 
 hii you can call me zombi or murder.. i dont really care what u call me lmao! im a dust sans fictkin! ask 4 sys.. 
 
-I'm offtab almost all the time lol, just w2i if you aren't one of my friends. anyone c+h unless im with someone alreaddy
+I'm offtab almost all the time lol, just w2i if you aren't one of my friends. anyone c+h i dont rlly care
 
 dont interact with me if you're problematic, under 12, or over 20. (unless I know u already)
 
