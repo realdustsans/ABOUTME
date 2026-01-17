@@ -16,7 +16,9 @@ dont copy my skins
 
 i follow people i think are cooolll.... also shoutout to my awesome friends 
 
-hint hint if you're someone i barely know i barely talk hint hint if you're someone im comfortable with i talk a lot hint hint i dont like talking in general tho hint hint i cant start convos first
+i am very shy around new people or people i dont know so i dont rlly talk a lot ! when im comfortable enough i start talking a bunch more ^_^
+
+lowk looking for friends hi... u can ask for my socials if u wanna chat more
 
 any flirting i do is strictly platonic as i am already taken. i am poly but i am currently NOT seeking for a relationship.
 
