@@ -26,4 +26,4 @@ ok thats basically all u need to know about me ok bye ok
 
 
 who even loves gooning
-![https://i.pinimg.com/736x/83/ef/8e/83ef8ec3ec391d7a27db13cb3e812948.jpg]
+![83ef8ec3ec391d7a27db13cb3e812948](https://github.com/user-attachments/assets/96584faa-921e-43ec-9e8a-f406deecba98)
