@@ -24,6 +24,4 @@ any flirting i do is strictly platonic as i am already taken. i am poly but i am
 
 ok thats basically all u need to know about me ok bye ok
 
-who even loves gooning
-
-![83ef8ec3ec391d7a27db13cb3e812948](https://github.com/user-attachments/assets/96584faa-921e-43ec-9e8a-f406deecba98)
+p.s im an LISTENER. if u ever need to vent to me im not great at comforting.
