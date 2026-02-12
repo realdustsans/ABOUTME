@@ -2,26 +2,28 @@
 ![25f21d646a36e0e051196c54b9c979f5](https://github.com/user-attachments/assets/6aae5692-fed4-46f2-a290-9069e1fef0c1)
 
 
-hii you can call me zombi or murder.. i dont really care what u call me lmao! im a dust sans fictkin! ask 4 sys.. 
-
-im mnostly the one fronting but sometimes theres others with me.. ok? ask.. ok?
+hii you can call me zombi or murder.. u can use nicknames on me i dont mind! im a dust sans fictkin! ask 4 sys.. im mnostly the one fronting
 
 strictly masc terms unless stated otherwise
 
+uhmmm im kinda mentally unstable i have sudden mood changes n etc just interact with caution all the time plllease
+
 I'm offtab almost all the time lol, just w2i if you aren't one of my friends. anyone c+h i dont rlly care
 
-dont interact with me if you're problematic, under 12, or over 20. (unless I know u already)
+plleeasee dont interact with me if you're problematic, basic dni, proshipper or any of that stuff, under 12, or over 20. (unless I know u already) Other than that feel free to interact!
 
-dont copy my skins 
+dont copy my skins u can ask 4 inspo tho
 
-i follow people i think are cooolll.... also shoutout to my awesome friends 
+shoutout to my few awesome friends hi guys i love you planotically 
 
-i am very shy around new people or people i dont know so i dont rlly talk a lot ! when im comfortable enough i start talking a bunch more ^_^
+i am VERY shy around new people so i dont rlly talk a lot ! when im comfortable enough i start talking a bunch more ^_^ I am a listener at heart and i will listen to anything uu wanna rant or vent to me about
 
-lowk looking for friends hi... u can ask for my socials if u wanna chat more
+im looking for more friends uhm pls be my friend twirls hair 
 
-any flirting i do is strictly platonic as i am already taken. i am poly but i am currently NOT seeking for a relationship.
+any flirting i do is strictly platonic as i am already taken by 2 lovely people. i am poly but i am currently NOT seeking for a relationship.
 
-ok thats basically all u need to know about me ok bye ok
+u can always ask for my socials so we can chat more! :)
 
-p.s im an LISTENER. if u ever need to vent to me im not great at comforting.
+bye
+
+
