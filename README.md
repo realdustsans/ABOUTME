@@ -6,7 +6,7 @@ hii you can call me zombi or murder.. u can use nicknames on me i dont mind! im 
 
 strictly masc terms unless stated otherwise
 
-uhmmm im kinda mentally unstable i have sudden mood changes n etc just interact with caution all the time plllease
+i joke around a lot just tell me if u need me to use tonetags or u dont like me makin jokes lelellele 
 
 I'm offtab almost all the time lol, just w2i if you aren't one of my friends. anyone c+h i dont rlly care
 
