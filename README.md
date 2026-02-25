@@ -20,8 +20,6 @@ i am VERY shy around new people so i dont rlly talk a lot ! when im comfortable 
 
 im looking for more friends uhm pls be my friend twirls hair 
 
-any flirting i do is strictly platonic as i am already taken by 2 lovely people. i am poly but i am currently NOT seeking for a relationship.
-
 u can always ask for my socials so we can chat more! :)
 
 bye
