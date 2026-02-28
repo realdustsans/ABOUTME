@@ -20,7 +20,7 @@ i am VERY shy around new people so i dont rlly talk a lot ! when im comfortable 
 
 im looking for more friends uhm pls be my friend twirls hair 
 
-u can always ask for my socials so we can chat more! :)
+u can always ask for my socials so we can chat more! :) but basically all my socials are the same..
 
 bye
 
