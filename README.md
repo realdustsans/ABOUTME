@@ -21,5 +21,6 @@ i am VERY shy around new people so i dont rlly talk a lot ! when im comfortable 
 im looking for more friends uhm pls be my friend twirls hair 
 
 u can always ask for my socials so we can chat more! :) but basically all my socials are the same.. (.ggloriouss) but my github n tiktok are the same
+![25f21d646a36e0e051196c54b9c979f5](https://media.everskies.com/wxyeZj7HiN7l1oDYe1xW.gif)
 
-![25f21d646a36e0e051196c54b9c979f5](https://64.media.tumblr.com/99a3ea0c94a86db3fce61a666654fbf3/d75f79ba8da9c3a5-57/s100x200/b5e0974d1c8e4a6915fbc35da34264d455a9b979.pnj) ![25f21d646a36e0e051196c54b9c979f5](https://64.media.tumblr.com/a00887f452cf82b3b42b01173b5a3ff7/d75f79ba8da9c3a5-84/s100x200/1825f85e324fd42fde0355ab4488540e317f8975.pnj) ![25f21d646a36e0e051196c54b9c979f5](https://media.everskies.com/wxyeZj7HiN7l1oDYe1xW.gif)
+![25f21d646a36e0e051196c54b9c979f5](https://64.media.tumblr.com/99a3ea0c94a86db3fce61a666654fbf3/d75f79ba8da9c3a5-57/s100x200/b5e0974d1c8e4a6915fbc35da34264d455a9b979.pnj) ![25f21d646a36e0e051196c54b9c979f5](https://64.media.tumblr.com/a00887f452cf82b3b42b01173b5a3ff7/d75f79ba8da9c3a5-84/s100x200/1825f85e324fd42fde0355ab4488540e317f8975.pnj) 
