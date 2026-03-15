@@ -24,4 +24,4 @@ u can always ask for my socials so we can chat more! :) but basically all my soc
 
 bye
 
-!(https://64.media.tumblr.com/99a3ea0c94a86db3fce61a666654fbf3/d75f79ba8da9c3a5-57/s100x200/b5e0974d1c8e4a6915fbc35da34264d455a9b979.pnj)
+![25f21d646a36e0e051196c54b9c979f5](https://64.media.tumblr.com/99a3ea0c94a86db3fce61a666654fbf3/d75f79ba8da9c3a5-57/s100x200/b5e0974d1c8e4a6915fbc35da34264d455a9b979.pnj)
