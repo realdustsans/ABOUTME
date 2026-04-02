@@ -8,6 +8,8 @@ strictly masc terms unless stated otherwise
 
 i joke around a lot just tell me if u need me to use tonetags or u dont like me makin jokes lelellele 
 
+i dont really care how others joke around just be u around me
+
 I'm offtab almost all the time so i dont see a lot of messages,, just w2i if you aren't one of my friends. anyone c+h i dont rlly care elelel
 
 plleeasee dont interact with me if you're problematic, basic dni, proshipper or any of that stuff, under 12, or over 20. (unless I know u already) Other than that feel free to interact!
