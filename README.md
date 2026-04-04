@@ -12,7 +12,7 @@ i dont really care how others joke around just be u around me
 
 I'm offtab almost all the time so i dont see a lot of messages,, just w2i if you aren't one of my friends. anyone c+h i dont rlly care elelel
 
-plleeasee dont interact with me if you're problematic, basic dni, proshipper or any of that stuff, under 12, or over 20. (unless I know u already) Other than that feel free to interact!
+plleeasee dont interact with me if you're problematic, basic dni, proshipper or any of that stuff, under 13, or over 20. (unless I know u already) Other than that feel free to interact!
 
 dont copy my skins u can ask 4 inspo tho
 
