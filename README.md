@@ -2,7 +2,9 @@
 ![25f21d646a36e0e051196c54b9c979f5](https://github.com/user-attachments/assets/6aae5692-fed4-46f2-a290-9069e1fef0c1)
 
 
-hii you can call us zombi or axel (our collective names) u can use nicknames we dont mind! we switch between plural & singular prns 
+hii you can call us zombi or axel (our collective names) we are a system n currently saving to get a diagnosis 
+
+u can use nicknames , we dont mind! we switch between plural & singular prns 
 
 strictly masc terms unless stated otherwise
 
