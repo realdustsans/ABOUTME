@@ -9,9 +9,9 @@ strictly masc terms unless stated otherwise
 
 i joke around a lot just tell me if u need me to use tonetags or u dont like me makin jokes lelellele 
 
-we dont really care how others act n joke around just be u
+i dont really care how others act n joke around just be u
 
-we're offtab 99% of the time so we MAY or may not see your messages, w2i if u arent a friends
+we're offtab 99% of the time so we MAY or may not see your messages, w2i if u arent a friend
 
 plleeasee dont interact with us if you're problematic , basic dni , and other stuff on our pronouns page.. Other than that feel free to interact!
 
