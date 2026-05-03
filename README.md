@@ -1,7 +1,6 @@
 
 ![25f21d646a36e0e051196c54b9c979f5](https://github.com/user-attachments/assets/6aae5692-fed4-46f2-a290-9069e1fef0c1)
 
-
 hii you can call us zombi or axel (our collective names) we are a system n currently saving to get a diagnosis 
 
 u can use nicknames , we dont mind! we switch between plural & singular prns 
@@ -10,21 +9,21 @@ strictly masc terms unless stated otherwise
 
 i joke around a lot just tell me if u need me to use tonetags or u dont like me makin jokes lelellele 
 
-i dont really care how others joke around just be u around me
+we dont really care how others act n joke around just be u
 
-I'm offtab almost all the time so i dont see a lot of messages,, just w2i if you aren't one of my friends. anyone c+h i dont rlly care elelel
+we're offtab 99% of the time so we MAY or may not see your messages, w2i if u arent a friends
 
-plleeasee dont interact with me if you're problematic, basic dni, proshipper or any of that stuff, under 13, or over 20. (unless I know u already) Other than that feel free to interact!
+plleeasee dont interact with us if you're problematic , basic dni , and other stuff on our pronouns page.. Other than that feel free to interact!
 
-dont copy my skins u can ask 4 inspo tho
+dont copy skins pllls thank 
 
-shoutout to my few awesome friends hi guys i love you planotically 
+shoutout to our awesome friends hi guys i love you planotically 
 
-i am VERY shy around new people so i dont rlly talk a lot ! when im comfortable enough i start talking a bunch more ^_^ I am a listener at heart and i will listen to anything uu wanna rant or vent to me about
+i dont really talk alot around new people but i am workin on being more social! i talk a lot when i get more comfortable (WHEN i have things to talk about)
 
 im looking for more friends uhm pls be my friend twirls hair 
 
-ALL of my socials are .ggloriouss but my github n tiktok are the same
+ALL of our socials are .ggloriouss but our github n tiktok are the same
 
 ![25f21d646a36e0e051196c54b9c979f5](https://media.everskies.com/wxyeZj7HiN7l1oDYe1xW.gif)
 
