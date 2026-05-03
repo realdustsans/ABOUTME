@@ -24,7 +24,7 @@ i am VERY shy around new people so i dont rlly talk a lot ! when im comfortable 
 
 im looking for more friends uhm pls be my friend twirls hair 
 
-u can always ask for my socials so we can chat more! :) but basically all my socials are the same.. (.ggloriouss) but my github n tiktok are the same
+ALL of my socials are .ggloriouss but my github n tiktok are the same
 
 ![25f21d646a36e0e051196c54b9c979f5](https://media.everskies.com/wxyeZj7HiN7l1oDYe1xW.gif)
 
