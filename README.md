@@ -1,5 +1,6 @@
 
-![viewer count](https://komarev.com/ghpvc/?username=realdustsans)
+![](https://komarev.com/ghpvc/?username=realdustsans&color=4d318c&label=MOONLIT+WATCHERS&style=flat-square)
+
 
 ![25f21d646a36e0e051196c54b9c979f5](https://files.catbox.moe/jzy7rq.png)
 
