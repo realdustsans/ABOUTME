@@ -2,20 +2,23 @@
 ![](https://komarev.com/ghpvc/?username=realdustsans&color=4d318c&label=MOONLIT+WATCHERS&style=flat-square)
 
 <p align="center">
-  $\color{#3F549A}{\text{⠀⠀　　 ⠀　 zombi / axel / murder
+  $\color{#3F549A}{\text{zombi / axel / murder
 }}$ 
 </p>
 <p align="center">
-  $\color{#494EA4}{\text{⠀⠀　　 ⠀　 we're a  system}}$ 
+  $\color{#494EA4}{\text{we're a  system}}$ 
 </p>
 <p align="center">
-  $\color{#0E1469}{\text{⠀⠀　　 ⠀　 masc prns .  singular + plural}}$ 
+  $\color{#0E1469}{\text{masc prns .  singular + plural}}$ 
 </p>
 <p align="center">
-  $\color{#000241}{\text{⠀⠀　　 ⠀　 offtab most of the time, pls w2i}}$
+  $\color{#000241}{\text{offtab most of the time, pls w2i}}$
+<p align="center">
+  $\color{#000036}{\text{c+h anytime! we love sitting with others}}$
+</p>
 </p>
 <p align="center">
-  $\color{#000036}{\text{⠀⠀　　 ⠀　 looking for more friends.. be our friend pls!}}$
+  $\color{#000036}{\text{looking for more friends.. be our friend pls!}}$
 </p>
 
 
