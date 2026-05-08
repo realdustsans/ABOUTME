@@ -1,8 +1,14 @@
 
 ![25f21d646a36e0e051196c54b9c979f5](https://files.catbox.moe/jzy7rq.png)
 
-$\color{141E62}{\text{⠀⠀　　 ⠀　 zombi
-}}$  $\color{152374}{\text{16}}$ $\color{25359D}{\text{ masc}}$ $\color{606DE1}{\text{ system}}$
+$\color{3F549A}{\text{⠀⠀　　 ⠀　 zombi / axel / murder
+}}$ 
+
+$\color{494EA4}{\text{⠀⠀　　 ⠀　 we're a  system}}$ 
+
+$\color{0E1469}{\text{⠀⠀　　 ⠀　 masc prns .  singular + plural}}$ 
+
+$\color{000241}{\text{⠀⠀　　 ⠀　 offtab 99%,w2i.}}$
 
 
 ![25f21d646a36e0e051196c54b9c979f5](https://files.catbox.moe/8216wn.png)
