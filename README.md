@@ -12,9 +12,12 @@
   $\color{#494EA4}{\text{masc prns .  singular + plural}}$ 
 </p>
 <p align="center">
+  𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
+</p>
+<p align="center">
   $\color{#0E1469}{\text{offtab most of the time, pls w2i}}$
 <p align="center">
-  $\color{#080d52}{\text{c+h anytime! we love sitting with others}}$
+  $\color{#0e1469}{\text{c+h anytime! we love sitting with others}}$
 </p>
 </p>
 <p align="center">
