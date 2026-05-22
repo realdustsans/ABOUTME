@@ -1,6 +1,15 @@
 
 ![](https://komarev.com/ghpvc/?username=realdustsans&color=4d318c&label=MOONLIT+WATCHERS&style=flat-square)
-
+<p align="center">
+  $\color{#4a5fc7}{\text{after󠀠 he passed away}}$
+</p>
+<p align="center">
+  <p align="center">
+  $\color{#4a4ec7}{\text{fuckshit came to my house and}}$ $\color{#7d81ff}{\text{dragged}}$ $\color{#4a4ec7}{\text{me out to go skate with him}}$
+</p>
+<p align="center">
+  $\color{#6d74b3}{\text{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡}}$
+</p>
 <p align="center">
   $\color{#3856b0}{\text{zombi / axel / murder
 }}$ 
