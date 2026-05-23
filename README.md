@@ -30,7 +30,7 @@
   $\color{#2a37b0}{\text{𓈒  Thin Ice : roleplayers , +21 , VERY flirty people 𓈒 }}$
 </p>
 <p align="center">
-  $\color{#2a37b0}{\text{𓈒  our memory is really dookie so sorry if we forget you 𓈒 }}$
+  $\color{#2a37b0}{\text{𓈒  we're a very slow thinker + have shit memory 𓈒 }}$
 </p>
 <p align="center">
   $\color{#6d74b3}{\text{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡}}$
