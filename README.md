@@ -37,11 +37,11 @@
 <p align="center">
   $\color{#242c96}{\text{𓈒  offtab most of the time, pls w2i 𓈒 }}$
 <p align="center">
-  $\color{#161e8a}{\text{𓈒  c+h anytime! we love sitting with others no bite ! 𓈒 }}$
+  $\color{#161e8a}{\text{𓈒  c+h anytime! we love sitting with others no bite ! i WILL stay in the game as long as i need to if we are together 𓈒 }}$
 </p>
 </p>
 <p align="center">
-  $\color{#3F549A}{\text{𓈒  looking for more friends.. be our friend pls! 𓈒 }}$
+  $\color{#3F549A}{\text{𓈒  looking for more friends.. be our friend PLS !! 𓈒 }}$
 </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
