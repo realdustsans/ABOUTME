@@ -37,7 +37,7 @@
 <p align="center">
   $\color{#242c96}{\text{𓈒  offtab most of the time, pls w2i 𓈒 }}$
 <p align="center">
-  $\color{#161e8a}{\text{𓈒  c+h anytime! we love sitting with others no bite ! i WILL stay in the game as long as i need to if we are together 𓈒 }}$
+  $\color{#161e8a}{\text{𓈒  c+h anytime! we love sitting with others! i WILL stay in the game as long as i need to 𓈒 }}$
 </p>
 </p>
 <p align="center">
