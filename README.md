@@ -14,7 +14,7 @@
   $\color{#3856b0}{\text{𓈒  zombi / axel / murder 𓈒 }}$ 
 </p>
 <p align="center">
-  $\color{#3F549A}{\text{𓈒  we're a bodily 16 transmasc system 𓈒 }}$ 
+  $\color{#3F549A}{\text{𓈒  bodily 16 transmasc system of 6 dysfunctional degenerates 𓈒 }}$ 
 </p>
 <p align="center">
   $\color{#494EA4}{\text{𓈒  masc prns .  singular + plural 𓈒 }}$ 
@@ -45,6 +45,9 @@
 </p>
 <p align="center">
   $\color{#3F549A}{\text{𓈒  looking for more friends.. be our friend PLS !! 𓈒 }}$
+</p>
+<p align="center">
+  $\color{#3F549A}{\text{𓈒  read our rentry for more info ig idk 𓈒 }}$
 </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
