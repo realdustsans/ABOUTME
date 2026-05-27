@@ -47,7 +47,7 @@
   $\color{#3F549A}{\text{𓈒  looking for more friends.. be our friend PLS !! 𓈒 }}$
 </p>
 <p align="center">
-  $\color{#3F549A}{\text{𓈒  read our rentry for more info ig idk 𓈒 }}$
+  $\color{#4a5fc7}{\text{𓈒  read our rentry for more info ig idk 𓈒 }}$
 </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
