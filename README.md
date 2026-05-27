@@ -46,9 +46,11 @@
 <p align="center">
   $\color{#3F549A}{\text{𓈒  looking for more friends.. be our friend PLS !! 𓈒 }}$
 </p>
+    
 <p align="center">
-  $\color{#4a5fc7}{\text{𓈒  read our rentry for more info ig idk 𓈒 }}$
+  <a href="https://rentry.co/brainsdust">𓈒  rentry.. read for more info 𓈒 </a>
 </p>
+
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=314gd5mejisv4zrkxvzhkbuf6hqm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true">
