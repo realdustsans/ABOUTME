@@ -23,7 +23,7 @@
   $\color{#6d74b3}{\text{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡}}$
 </p>
 <p align="center">
-  $\color{#2a37b0}{\text{𓈒  DNI under 13 , endo systems , basic dni 𓈒 }}$
+  $\color{#2a37b0}{\text{𓈒  DNI under 15 , endo systems , basic dni 𓈒 }}$
 </p>
 <p align="center">
   $\color{#2a37b0}{\text{𓈒  Thin Ice : roleplayers , +21 , VERY flirty people ( sexual ) 𓈒 }}$
