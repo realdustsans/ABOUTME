@@ -48,7 +48,7 @@
 </p>
     
 <p align="center">
-  <a href="https://rentry.co/brainsdust">𓈒  rentry.. read for more info 𓈒 </a>
+  <a href="https://rentry.co/brainsdust">𓈒  rentry .  </a> <a href="https://rawblood.atabook.org/"> atabook 𓈒 </a>
 </p>
 
 <p align="center">
