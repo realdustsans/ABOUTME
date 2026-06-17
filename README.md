@@ -16,7 +16,7 @@
 
 𓈒 bodily 17, use he/they pronouns on me thankss
 
-𓈒 im trans (ftm) , aroace , and queerplatonic ! my relationship status is single and im not looking to date ANYONE.
+𓈒 im trans (ftm) , asexual , and queerplatonic ! my relationship status is single and im not looking to date ANYONE.
 
 𓈒 im the host of a medically recognized P-DID system, don't have a diagnosis yet due 2 personal issues i prefer not to talk about it
 
