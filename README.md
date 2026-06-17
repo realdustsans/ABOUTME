@@ -52,19 +52,19 @@
 <details>
   <summary>⠀DNI　  ₎₎</summary>
 
-𓈒 basic dni . IF YOU ARE UNDER 15 PLEASE DON'T INTERACT WITH ME !!! senstitive people dni alsooo
+𓈒 basic dni . IF YOU ARE UNDER 15 PLEASE DON'T INTERACT WITH ME !!! senstitive people dni alsooo i can hurt u really easily and i dont want that
 
-𓈒 any endos... or disorder fakers... or anything like that... ok?
+𓈒 any endos... or disorder fakers... or fakeclaimers.. or transids.. or radqueers.. or anything like that... ok?
 
 𓈒 roleplayers + WEIRD yumeshippers. i really hate roleplaying or just seeing anything about it.. i don't like yumeshippers in general due to my past experiences with them
 
 𓈒 any exes + ex friends ! there is a reason i cut them off and do NOT want to interact with again. same goes for any drama related stuff.
 
-𓈒 really flirty people. it genuinely makes me uncomfortable, small platonic flirting is allowed but only with my close friends.. 
+𓈒 really flirty people. it genuinely makes me uncomfortable, small platonic flirting is allowed but only with my close friends.. same thing goes for sexual stuff
 
 𓈒 yaoi/yuri fetishizers or just make their whole person about it.
 
-𓈒 any killerchat fans, if you're already my friend but like this game i guess it's alright 
+𓈒 any killerchat fans, if you're already my friend but like this game i guess it's alright . same goes for HH/HB
 
 </details>
 
@@ -73,9 +73,9 @@
 
 𓈒 i have really bad memory,, i forget a LOT of stuff sorry
 
-𓈒 COMMUNICATE WITH ME IF I MAKE U UNCOMOFRTABLE OR ANNOYED !! i cannot read people's minds! 
+𓈒 COMMUNICATE WITH ME IF I MAKE U UNCOMOFRTABLE OR ANNOYED !! i cannot read people's minds and i need to know what i did wrong! yes guys i tkae accountability of my actionbs
 
-𓈒 im a really friendly person , im always looking to make more friends !
+𓈒 im a really friendly person , im always looking to make more friends ! i adore each and every single one of my friends <3
 
 𓈒 ask any questions , if u have anylol 
 
