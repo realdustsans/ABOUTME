@@ -5,6 +5,9 @@
   <img width="490" height="270" alt="634dbfcfedccf9237cdb74286f06a52c" src="https://github.com/user-attachments/assets/2db9bb77-fd56-459d-8ee5-bcf29411d1da" />
 </p>
 
+<p align="center">
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Pixelify+Sans&size=25&pause=1000&color=B4C7CB&width=435&lines=I+CURL+UP+TO+DIE+INSIDE+YOUR+CHEST" alt="Typing SVG" /></a>
+</p>
 
 <details>
   <summary>⠀INFO　  ₎₎</summary>
