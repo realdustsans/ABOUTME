@@ -2,47 +2,75 @@
 ![](https://komarev.com/ghpvc/?username=realdustsans&color=5e656d&label=MOONLIT+WATCHERS&style=for-the-badge&base=2576)
 
 <p align="center">
-  $\color{#93aab3}{\text{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡}}$
+  <img width="490" height="270" alt="634dbfcfedccf9237cdb74286f06a52c" src="https://github.com/user-attachments/assets/2db9bb77-fd56-459d-8ee5-bcf29411d1da" />
 </p>
+
+
+<details>
+  <summary>⠀INFO　  ₎₎</summary>
+
+𓈒 hi hello you can either call me by zombi or axel! murder is okay, i prefer if only my friends use it on me. any nicknames are fine, i LOVE them!!
+
+𓈒 bodily 17, use he/they pronouns on me thankss
+
+𓈒 im trans (ftm) , aroace , and queerplatonic ! my relationship status is single and im not looking to date ANYONE.
+
+𓈒 im the host of a medically recognized P-DID system, don't have a diagnosis yet due 2 personal issues i prefer not to talk about it
+
+𓈒 anytime im on ponytown im most likely offtab so i prefer u whisper me if u wanna interact.. sometimes i reply late !
+
+𓈒 c+h is heavily enc , i love sitting with people !! im mostly seeen with my friends in the UT area im rarely anywhere else
+
+𓈒 i dont use plural unless im adressing everyone, i prefer to avoid confusion! im fronting all the time either way LOL
+
+</details>
+
+<details>
+  <summary>⠀BYI　  ₎₎</summary>
+
+𓈒 i am currently recovering and in the process of getting actual therapy, iwc at all times
+
+𓈒 i can get REALLY emotional at some times and lash out so uhm
+
+𓈒 im a big fan of the block button just be chill
+
+𓈒 im a REALLY shitty comforter just gonna lay that out if u vent to me u probably wont get a response 
+
+𓈒 when u first meet me im a REALLY quiet and closed off person, once i warm up to you i become a big talker
+
+</details>
+
+<details>
+  <summary>⠀DNI　  ₎₎</summary>
+
+𓈒 basic dni . IF YOU ARE UNDER 15 PLEASE DON'T INTERACT WITH ME !!! senstitive people dni alsooo
+
+𓈒 roleplayers + WEIRD yumeshippers. i really hate roleplaying or just seeing anything about it.. i don't like yumeshippers in general due to my past experiences with them
+
+𓈒 any exes + ex friends ! there is a reason i cut them off and do NOT want to interact with again. same goes for any drama related stuff.
+
+𓈒 really flirty people. it genuinely makes me uncomfortable, small platonic flirting is allowed but only with my close friends.. 
+
+𓈒 yaoi/yuri fetishizers or just make their whole person about it.
+
+</details>
+
+<details>
+  <summary>⠀MORE　  ₎₎</summary>
+
+𓈒 i have really bad memory,, i forget a LOT of stuff sorry
+
+𓈒 COMMUNICATE WITH ME IF I MAKE U UNCOMOFRTABLE OR ANNOYED !! i cannot read people's minds! 
+
+𓈒 im a really friendly person , im always looking to make more friends !
+
+𓈒 ask any questions , if u have anylol 
+
+</details>
+
+
 <p align="center">
-  $\color{#adbcc1}{\text{𓈒  zombi / axel / murder 𓈒 }}$ 
-</p>
-<p align="center">
-  $\color{#8a9aa5}{\text{𓈒  bodily 17 transmasc system of 6 dysfunctional degenerates 𓈒 }}$ 
-</p>
-<p align="center">
-  $\color{#61666a}{\text{𓈒  masc prns .  singular + plural 𓈒 }}$ 
-</p>
-<p align="center">
-  $\color{#93aab3}{\text{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡}}$
-</p>
-<p align="center">
-  $\color{#8f848a}{\text{𓈒  DNI under 15 , endo systems , basic dni 𓈒 }}$
-</p>
-<p align="center">
-  $\color{#8f848a}{\text{𓈒  Thin Ice : roleplayers , +21 , VERY flirty people ( sexual ) 𓈒 }}$
-</p>
-<p align="center">
-  $\color{#8f848a}{\text{𓈒  our memory isn't the best so sorry if we forget you 𓈒 }}$
-</p>
-<p align="center">
-  $\color{#8f848a}{\text{𓈒  p.s im like. really awkward when talking 2 ppl sorry 𓈒 }}$
-</p>
-<p align="center">
-  $\color{#93aab3}{\text{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡}}$
-</p>
-<p align="center">
-  $\color{#5f696d}{\text{𓈒  offtab most of the time, pls w2i 𓈒 }}$
-<p align="center">
-  $\color{#483f45}{\text{𓈒  c+h anytime! we love sitting with others!<3 𓈒 }}$
-</p>
-</p>
-<p align="center">
-  $\color{#483f45}{\text{𓈒  looking for more friends.. be our friend PLS !! 𓈒 }}$
-</p>
-    
-<p align="center">
-  <a href="https://rentry.co/brainsdust">𓈒  rentry .  </a>  <a href="https://rawblood.atabook.org/">  新book . </a>  <a href="https://pronouns.cc/@ggloriouss">prns 𓈒  </a>
+  <a href="https://rentry.co/brainsdust"> rentry .  </a>  <a href="https://rawblood.atabook.org/">  新book . </a>  <a href="https://pronouns.cc/@ggloriouss">prns  </a>
 </p>
 
 <p align="center">
