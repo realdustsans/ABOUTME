@@ -52,7 +52,7 @@
 <details>
   <summary>⠀DNI　  ₎₎</summary>
 
-𓈒 basic dni . IF YOU ARE UNDER 15 PLEASE DON'T INTERACT WITH ME !!! senstitive people dni alsooo i can hurt u really easily and i dont want that
+𓈒 basic dni . IF YOU ARE UNDER 15 PLEASE DON'T INTERACT WITH ME !!! 14 years old are thin ice,, senstitive people dni alsooo i can hurt u really easily and i dont want that
 
 𓈒 any endos... or disorder fakers... or fakeclaimers.. or transids.. or radqueers.. or anything like that... ok?
 
