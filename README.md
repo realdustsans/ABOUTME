@@ -79,6 +79,8 @@
 
 𓈒 sometimes i can get distracted or zone out for long periods of times uhm. sweats
 
+𓈒 i seomtimes act mean. A A JOKE AS JOOKE AAS AJOKE IM NOT MEAN ON PURPOSE!!
+
 𓈒 ask any questions , if u have anylol 
 
 </details>
