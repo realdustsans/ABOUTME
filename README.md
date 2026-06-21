@@ -1,12 +1,12 @@
 
-![](https://komarev.com/ghpvc/?username=realdustsans&color=5e656d&label=MOONLIT+WATCHERS&style=for-the-badge&base=2576)
+![](https://komarev.com/ghpvc/?username=realdustsans&color=b96dda&label=MOONLIT+WATCHERS&style=for-the-badge&base=2576)
 
 <p align="center">
-  <img width="490" height="270" alt="634dbfcfedccf9237cdb74286f06a52c" src="https://github.com/user-attachments/assets/2db9bb77-fd56-459d-8ee5-bcf29411d1da" />
+  <img width="450" height="450" alt="634dbfcfedccf9237cdb74286f06a52c" src="https://github.com/realdustsans/realdustsans/blob/main/Untitled399_20260621141653%20(1).png?raw=true" />
 </p>
 
 <p align="center">
- <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Pixelify+Sans&size=25&pause=1000&color=B4C7CB&width=435&lines=I+CURL+UP+TO+DIE+INSIDE+YOUR+CHEST" alt="Typing SVG" /></a>
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Pixelify+Sans&size=25&pause=1000&color=c39ef3&width=435&lines=I+CURL+UP+TO+DIE+INSIDE+YOUR+CHEST" alt="Typing SVG" /></a>
 </p>
 
 <details>
