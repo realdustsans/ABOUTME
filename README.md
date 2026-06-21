@@ -16,6 +16,8 @@
 
 𓈒 bodily 17, use he/they pronouns on me thankss
 
+𓈒 i speak english but i can understand other languages like spanish and russian !
+
 𓈒 im trans (ftm) , asexual , and queerplatonic ! i am currently single and i don't desire romantic relationships since im queerplatonic LOL
 
 𓈒 im the host of a medically recognized P-DID system, don't have a diagnosis yet due 2 personal issues i prefer not to talk about it
