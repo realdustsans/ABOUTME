@@ -88,7 +88,7 @@
 </details>
 
 <p align="center">
-  $\color{#cabee8}{\text{sign my atabook for a cookie}}$
+  $\color{#cabee8}{\text{sign my atabook for a cookie (its bright so uhm beware) }}$
 </p>
 
 <p align="center">
